@@ -1,3 +1,5 @@
+https://www.google.com/search?q=states+without+brake+tags
+
 As of 2026, Louisiana (which famously referred to its windshield safety stickers as "brake tags") has eliminated statewide mandatory vehicle safety inspection stickers for personal passenger vehicles, transitioning to a registration-tied QR code system. [1] (https://www.kalb.com/2026/06/02/louisiana-drivers-soon-will-say-goodbye-inspection-stickers/), [2] (https://worldpopulationreview.com/state-rankings/states-without-vehicle-inspection)
 
 U.S. States With No Periodic Safety Inspections
